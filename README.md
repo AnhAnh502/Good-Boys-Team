@@ -35,11 +35,11 @@ Chỉ trong 5 tháng đầu năm 2020, Bệnh viện Chấn thương chỉnh hì
 ### II. Nguyên nhân:
 Bác sĩ Bùi Hồng Thiên Khanh, Trưởng khoa Chấn thương chỉnh hình, Bệnh viện Đại học Y Dược TP HCM.
 
-                           <img src = "https://i.imgur.com/3D4qlL2.png">
+<img src = "https://i.imgur.com/3D4qlL2.png">
 
 Các gia đình có người lớn tuổi nên chú ý đến vấn đề an toàn, tốt nhất không để các cụ phải di chuyển một mình ở những nơi trơn trượt hay bậc cao dễ té ngã. Ở người cao tuổi mật độ canxi giảm nên xương rất giòn dễ bị gãy.  Trường hợp không may xảy ra tai nạn, nên đến bệnh viện có chuyên khoa chấn thương chỉnh hình kiểm tra và điều trị kịp thời, tránh để lâu diễn tiến xấu. Nếu không được điều trị kịp thời, người bệnh đối mặt với nguy cơ nằm một chỗ, nhiễm trùng tiểu, nhiễm trùng phổi, loét do tì đè, ảnh hưởng nhiều đến sinh hoạt hằng ngày và chất lượng cuộc sống. Dân số Việt Nam đang già hóa nhanh, song việc chăm sóc y tế cho người lớn tuổi chưa được quan tâm đúng mức.
 
-                           <img src = "https://i.imgur.com/t84Rojs.png">
+<img src = "https://i.imgur.com/t84Rojs.png">
 Người già thường dễ bị tổn thương, sức khỏe suy yếu, sa sút trí tuệ, suy giảm chức năng và giác quan, cần phải dùng nhiều thuốc, tình trạng này kéo theo suy giảm chất lượng cuộc sống. Trong khi đó nhiều người có quan điểm sai lầm cho rằng các triệu chứng bất thường ở người già là một phần tất yếu của lão hóa nên không cần chữa trị, dẫn đến phát hiện triệu chứng trễ, khó điều trị. Khi đó người bệnh lớn tuổi trở thành gánh nặng cho cả gia đình và xã hội.
 
 Cộng đồng cần quan tâm chăm sóc sức khỏe cho người cao tuổi, đặc biệt là các cụ gặp vấn đề sức khỏe liên quan đến lão hóa. Chăm sóc đúng cách giúp nâng cao chất lượng cuộc sống người bệnh, giảm té ngã, tránh nguy cơ tàn tật, đồng thời giúp cải thiện tâm lý và kiểm soát triệu chứng tốt hơn.
