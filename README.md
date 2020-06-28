@@ -52,7 +52,7 @@ Cộng đồng cần quan tâm chăm sóc sức khỏe cho người cao tuổi, 
 
 Nếu như có một vòng đeo tay cảm biến va chạm. Khi người sử dụng té ngã hoặc ngã. Ngay lập tức vòng đeo tay sẽ cảm nhận sự va chạm và ngay lập tức báo cho chúng ta biết thông qua 1 ứng dụng thông minh trên smartphone. Khi đó ta có thể ngay lập tức ứng biến nhanh chóng và giảm thiểu những trường hợp xấu nhất.
 
-### IV. Nguồn.
+### Nguồn.
 
  - VN Express.net
  - EverydayHealth.com
@@ -60,6 +60,6 @@ Nếu như có một vòng đeo tay cảm biến va chạm. Khi người sử d�
  - Vietgiaitri.com
  - Tuoitre.vn
 
-### V. Support or Contact
+### Support or Contact
 
-Liên hệ: anhtna502@gmail.com
+Mọi thắc mắc vui lòng iên hệ : 19521720@gm.uit.edu.vn
