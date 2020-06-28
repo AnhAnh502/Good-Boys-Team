@@ -1,7 +1,7 @@
-# Đồ Án Tốt Nghiệp Kĩ Năng Nghề Nghiệp
+#                  Đồ Án Tốt Nghiệp Kĩ Năng Nghề Nghiệp
 
 
-## Vòng tay "cảm biến va chạm" dành cho người cao tuổi
+##                 Vòng Tay "Cảm Biến Va Chạm" Dành Cho Người Cao Tuổi
 
 
 ### I. Số liệu
